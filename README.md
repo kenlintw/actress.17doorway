@@ -81,7 +81,7 @@ Nissan廣告2018.4
 ### TG016 關何 24歲
 **164cm  52kg **
 **國立台北藝術大學戲劇學系畢
-![Image](./guangho/guangho01.jpg)
+![Image](./guanho/guanho01.jpg)
 
 **演藝經驗**
 ```
