@@ -31,10 +31,10 @@
 2018 東北插班生二-中特
 2018 音為愛上你-主角游泳替身
 2018 大愛 千里路·愛相髓(老師女同事)
-2018 手機遊戲彩虹島 網路廣告 女主角 https://www.facebook.com/chtw.gamedreamer/posts/372304096605575 
+2018 手機遊戲彩虹島 網路廣告 女主角
 ```
 
-參與作品片幾剪輯：
+##影片連結
 https://www.youtube.com/watch?v=m15Cz3ruVkw&list=RDm15Cz3ruVkw 
 https://youtu.be/1EAmqffU8CI
 https://www.facebook.com/chtw.gamedreamer/posts/372304096605575 
