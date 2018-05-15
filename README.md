@@ -39,22 +39,24 @@
 * [台灣藝術大學-wake up影片](https://www.youtube.com/watch?v=m15Cz3ruVkw&list=RDm15Cz3ruVkw) 
 * [魏嘉瑩-喜歡我吧MV](https://youtu.be/1EAmqffU8CI)
 
-
+<br>
+<br>
 
 
 ### TG012 盧妮可  14歲
 **167cm  45kg **
 ![Image](./nico/nico01.jpeg)
 
-
+<br>
+<br>
 
 
 ### TG015 黃詩媛 22歲
 **161cm  43kg **
 **34D.23.33**
-![Image](./sharon/sharon01.jpeg)
-![Image](./sharon/sharon02.jpeg)
-![Image](./sharon/sharon03.jpeg)
+![Image](./sharon/sharon01.jpg)
+![Image](./sharon/sharon02.jpg)
+![Image](./sharon/sharon03.jpg)
 
 **演藝經驗**
 綜藝菲常讚（班底）
@@ -71,6 +73,9 @@ Nissan廣告2018.4
 * [Nissan－社會新鮮人](https://m.facebook.com/story.php?story_fbid=444086472709961&id=260610274390916) 
 * [中國信託－女兒](https://www.youtube.com/watch?v=pzAobxRQwBc)
 * [自我介紹](https://youtu.be/gd9s_Jd-qv4)
+
+<br>
+<br>
 
 
 
