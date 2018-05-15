@@ -3,8 +3,8 @@
 ### 蔡宛妮
 **163cm  48kg **
 
-![Image](./shinny/shinny01.jpg)
-![Image](./shinny/shinny02.jpg)
+![Image](./shinny/shinny01.jpeg)
+![Image](./shinny/shinny02.jpeg)
 
 **參與作品**
 * 2014 我在你身邊 (學生片比賽)
