@@ -35,9 +35,9 @@
 ```
 
 **影片連結**
-[台灣藝術大學-wake up影片](https://www.youtube.com/watch?v=m15Cz3ruVkw&list=RDm15Cz3ruVkw) 
-[魏嘉瑩-喜歡我吧MV](https://youtu.be/1EAmqffU8CI)
-[手機遊戲](https://www.facebook.com/chtw.gamedreamer/posts/372304096605575) 
+* [台灣藝術大學-wake up影片](https://www.youtube.com/watch?v=m15Cz3ruVkw&list=RDm15Cz3ruVkw) 
+* [魏嘉瑩-喜歡我吧MV](https://youtu.be/1EAmqffU8CI)
+* [手機遊戲](https://www.facebook.com/chtw.gamedreamer/posts/372304096605575) 
 
 
 
