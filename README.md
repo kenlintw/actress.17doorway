@@ -42,7 +42,35 @@
 
 
 
-### TG012 盧妮可
+### TG012 盧妮可  14歲
 **167cm  45kg **
 ![Image](./nico/nico01.jpeg)
+
+
+
+
+### TG015 黃詩媛 22歲
+**161cm  43kg **
+**34D.23.33**
+![Image](./sharon/sharon01.jpeg)
+![Image](./sharon/sharon02.jpeg)
+![Image](./sharon/sharon03.jpeg)
+
+**演藝經驗**
+綜藝菲常讚（班底）
+雙城故事（背包客）
+鬥魚（電影版）（辣妹）
+雙城故事（新婚夫妻）
+銀行廣告2018.3
+知名化妝品廣告2018.3
+英文學習影片2018.3
+祕密情人偶像劇主持人2018.3
+Nissan廣告2018.4
+```
+**影片連結**
+* [Nissan－社會新鮮人](https://m.facebook.com/story.php?story_fbid=444086472709961&id=260610274390916) 
+* [中國信託－女兒](https://www.youtube.com/watch?v=pzAobxRQwBc)
+* [自我介紹](https://youtu.be/gd9s_Jd-qv4)
+
+
 
