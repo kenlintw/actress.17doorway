@@ -120,6 +120,7 @@ Nissan廣告2018.4
 ![Image](./effy/effy02.png)
 ![Image](./effy/effy03.png)
 ![Image](./effy/effy04.png)
+![Image](./effy/effy05.png)
 
 **舞蹈經歷**
 ```
