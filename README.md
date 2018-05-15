@@ -121,6 +121,7 @@ Nissan廣告2018.4
 ![Image](./effy/effy04.png)
 
 **舞蹈經歷**
+```
 舞齡：三年
 擅長舞風：MV、Girl's Hip Hop、Lyrical Dance
 舞團：Sis 8
