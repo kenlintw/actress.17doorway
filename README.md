@@ -2,6 +2,11 @@
 
 ### 蔡宛妮
 **163cm  48kg **
+![Image](./shinny/ran01.jpg)
+![Image](./shinny/ran01.jpg)
+![Image](./shinny/ran01.jpg)
+
+
 **參與作品**
 * 2014 我在你身邊 (學生片比賽)
 * 2014 勞動部微電影上下集
@@ -20,7 +25,8 @@
 *2017 Lowking-God She's So Sweet (MV女主角)
 *2017 肯德基KFC廣告
 *2017 民視 實習醫師鬥格 31集 基特(空姐病人)
-*2017 魏嘉瑩-喜歡我吧MV https://www.youtube.com/watch?v=m15Cz3ruVkw&list=RDm15Cz3ruVkw 2017 台灣藝術大學-wake up(女主角)(自剪片段) https://youtu.be/1EAmqffU8CI
+*2017 魏嘉瑩-喜歡我吧MV 
+2017 台灣藝術大學-wake up(女主角)(自剪片段) 
 *2017 台灣藝術大學-交換禮物(主角之一)
 *2018 東北插班生二-中特
 *2018 音為愛上你-主角游泳替身
@@ -28,6 +34,8 @@
 *2018 手機遊戲彩虹島 網路廣告 女主角 https://www.facebook.com/chtw.gamedreamer/posts/372304096605575 
 
 參與作品片幾剪輯：
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1EAmqffU8CI" frameborder="0" allow="autoplay; encrypted-media" allowfullscreen></iframe>
+https://www.youtube.com/watch?v=m15Cz3ruVkw&list=RDm15Cz3ruVkw 
+https://youtu.be/1EAmqffU8CI
 
-![Image](./ran/ran01.jpg)
+
+
