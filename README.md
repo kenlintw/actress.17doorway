@@ -100,6 +100,15 @@ Nissan廣告2018.4
 * [地下道](https://www.youtube.com/watch?v=gfzQVoGwvkg&feature=youtu.be)
 * [家](https://drive.google.com/file/d/1ZqtEKkra7z7uxmRMwBZeMITSIuj-nJt0/view)
 
+### TG018 林旻靜 17歲
+**155cm 42kg **
+![Image](./ging/ging01.jpg)
+![Image](./ging/ging02.jpg)
 
+**演藝經驗**
+```
+2017 苗北藝文中心鋼琴演奏
+2016 新竹市文化局演藝廳鋼琴演奏
+```
 
 
