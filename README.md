@@ -354,7 +354,7 @@ CHARINYEN AW17形象影片
 
 
 ### TG017 汪采涵 14歲
-**150cm 30kg**
+**150cm 45kg**
 ![Image](./wan/wan02.jpeg)
 ![Image](./wan/wan01.jpeg)
 ![Image](./wan/wan03.jpg)
