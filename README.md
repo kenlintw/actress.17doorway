@@ -212,12 +212,15 @@ https://www.youtube.com/watch?v=VMYidjgZA1M
 * [MV演出 星期天Sunday -【專屬司機】 Ft.陳零九Nine Chen](https://www.youtube.com/watch?v=RrMqChIqV04&t=1s)
 
 
-### FA005 尤鳳揚 22歲
+### FA005 尤鳳揚 25歲
 **153cm 43kg **
-* 30B/23/33 ** 
+** 30B/23/33 ** 
 ![Image](./sheep/sheep01.jpg)
 ![Image](./sheep/sheep02.jpg)
 ![Image](./sheep/sheep03.jpg)
+![Image](./sheep/sheep04.jpg)
+![Image](./sheep/sheep05.jpg)
+
 
 **演藝經驗**
 ```
