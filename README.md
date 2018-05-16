@@ -52,7 +52,7 @@
 
 
 ### TG015 黃詩媛 22歲
-**161cm  43kg **
+**161cm 43kg**
 **34D.23.33**
 ![Image](./sharon/sharon01.jpg)
 ![Image](./sharon/sharon02.jpg)
@@ -101,7 +101,7 @@ Nissan廣告2018.4
 * [家](https://drive.google.com/file/d/1ZqtEKkra7z7uxmRMwBZeMITSIuj-nJt0/view)
 
 ### TG018 林旻靜 17歲
-**155cm 42kg **
+**155cm 42kg**
 ![Image](./ging/ging01.jpg)
 ![Image](./ging/ging02.jpg)
 
@@ -261,6 +261,7 @@ https://www.youtube.com/watch?v=VMYidjgZA1M
 ### FA006 楊芷涵 23歲
 **160cm 42kg**
 **74/59/86** 
+
 ![Image](./chihhan/1.jpeg)
 ![Image](./chihhan/2.jpeg)
 ![Image](./chihhan/3.jpeg)
