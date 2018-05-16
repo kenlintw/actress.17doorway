@@ -253,3 +253,68 @@ https://www.youtube.com/watch?v=VMYidjgZA1M
 * [家樂福廣告 女友](https://youtu.be/IHCJfvWQXfQ)
 * [國民年金廣告 孕婦](https://youtu.be/w5SrKHY2WgU)
 * [東元除濕機 女主](https://youtu.be/6u9GAwPI3zs)
+
+<br>
+<br>
+
+### FA006 楊芷涵 23歲
+**160cm 42kg **
+** 74/59/86 ** 
+![Image](./chihhan/1.jpeg)
+![Image](./chihhan/2.jpeg)
+![Image](./chihhan/3.jpeg)
+![Image](./chihhan/4.jpeg)
+![Image](./chihhan/6.jpeg)
+![Image](./chihhan/16.jpeg)
+![Image](./chihhan/17.jpeg)
+![Image](./chihhan/19.jpeg)
+![Image](./chihhan/26.jpeg)
+![Image](./chihhan/27.jpeg)
+![Image](./chihhan/35.jpeg)
+
+**演藝經驗**
+```
+品牌模特兒
+Moi Non Plus
+Charinyen 葉珈伶
+Austin.W
+安Ann
+Y CHIC
+ALex S Yu
+Classico
+Tan Tan studio
+Sumi
+Simple Sample Shoes
+Zoody shoes
+Little Treasure
+Chase
+Choucas
+
+雜誌
+女人下班後雜誌
+Lifezone生活圈雜誌
+zucca 雜誌
+桃園誌
+
+平面其他
+金典綠園道DM
+川島小鳥模特
+愛の台南 川島小鳥 
+
+走秀
+dress code 
+
+動態
+全家廣告Moomin篇
+艾爾恩廣告公司形象影片
+Hello Nico 樂團MV 
+CHARINYEN AW17形象影片
+```
+**影片連結**
+* [全家廣告Moomin篇](https://www.youtube.com/watch?v=nZwHXae5S3I)
+* [艾爾恩廣告公司形象影片](https://www.youtube.com/watch?v=r2Jn_hB0xWU)
+* [Hello Nico 樂團MV](https://www.youtube.com/watch?v=tKO7AiQ4f8I)
+* [CHARINYEN AW17形象影片](https://www.youtube.com/watch?v=kt1Qt2tFJtk&feature=youtu.be)
+
+<br><br>
+
