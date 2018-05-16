@@ -332,6 +332,13 @@ CHARINYEN AW17形象影片
 **鋼琴/揚琴**
 
 ![Image](./yeh/yeh01.jpg)
+![Image](./yeh/yeh02.jpg)
+![Image](./yeh/yeh03.jpg)
+![Image](./yeh/yeh04.jpg)
+![Image](./yeh/yeh05.jpg)
+![Image](./yeh/yeh06.jpg)
+![Image](./yeh/yeh07.jpg)
+![Image](./yeh/yeh08.jpg)
 
 
 **演藝經驗**
