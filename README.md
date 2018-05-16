@@ -1,11 +1,9 @@
 ## 女生演員
 
 
-### TG011 蔡宛妮
-```
-**19歲**
-**身高/體重：163cm/48kg**
-```
+### TG011 蔡宛妮 19歲
+**163cm/48kg**
+<br>
 ![Image](./shinny/shinny01.jpeg)
 ![Image](./shinny/shinny02.jpeg)
 
