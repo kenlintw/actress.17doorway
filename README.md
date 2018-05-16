@@ -331,7 +331,7 @@ CHARINYEN AW17形象影片
 **162cm 46kg**
 **鋼琴/揚琴**
 
-![Image](./yeh/yeh01.JPG)
+![Image](./yeh/yeh01.jpg)
 
 
 **演藝經驗**
