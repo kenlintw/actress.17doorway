@@ -327,3 +327,26 @@ CHARINYEN AW17形象影片
 
 <br><br>
 
+### TG016 葉紓菡 14歲
+**162cm 46kg**
+**鋼琴/揚琴**
+
+<br>
+![Image](./yehuhan/yehuhan01.jpg)
+![Image](./yehuhan/yehuhan02.jpg)
+![Image](./yehuhan/yehuhan03.jpg)
+![Image](./yehuhan/yehuhan04.jpg)
+![Image](./yehuhan/yehuhan05.jpg)
+![Image](./yehuhan/yehuhan06.jpg)
+![Image](./yehuhan/yehuhan07.jpg)
+![Image](./yehuhan/yehuhan08.jpg)
+
+
+**演藝經驗**
+```
+2009 健保局宣導短片
+2010 桃園新光三越兒童星光大道走秀
+2017 大愛戲劇。
+2018 校園喜劇片-姐妹
+```
+
