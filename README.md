@@ -2,7 +2,7 @@
 
 
 ### TG011 蔡宛妮
-**163cm  48kg **
+**163cm 48kg**
 
 ![Image](./shinny/shinny01.jpeg)
 ![Image](./shinny/shinny02.jpeg)
@@ -44,7 +44,7 @@
 
 
 ### TG012 盧妮可  14歲
-**167cm  45kg **
+**167cm 45kg**
 ![Image](./nico/nico01.jpeg)
 
 <br>
@@ -53,6 +53,7 @@
 
 ### TG015 黃詩媛 22歲
 **161cm 43kg**
+<br>
 **34D.23.33**
 ![Image](./sharon/sharon01.jpg)
 ![Image](./sharon/sharon02.jpg)
@@ -79,8 +80,9 @@ Nissan廣告2018.4
 <br>
 
 ### TG016 關何 24歲
-**164cm  52kg **
-**國立台北藝術大學戲劇學系畢
+**164cm  52kg**
+<br>
+**國立台北藝術大學戲劇學系畢**
 ![Image](./guanho/guanho01.jpg)
 
 **演藝經驗**
@@ -115,7 +117,7 @@ Nissan廣告2018.4
 <br>
 
 ### TG019 陳芊宇 25歲
-**155cm 42kg **
+**155cm 42kg**
 ![Image](./effy/effy01.png)
 ![Image](./effy/effy02.png)
 ![Image](./effy/effy03.png)
@@ -147,7 +149,7 @@ Nissan廣告2018.4
 <br>
 
 ### TG020 Tiny 21歲
-**153cm 40kg **
+**153cm 40kg**
 ![Image](./tiny/tiny01.png)
 ![Image](./tiny/tiny02.png)
 ![Image](./tiny/tiny03.png)
@@ -213,8 +215,9 @@ https://www.youtube.com/watch?v=VMYidjgZA1M
 
 
 ### FA005 尤鳳揚 25歲
-**153cm 43kg **
-** 30B/23/33 ** 
+**153cm 43kg**
+<br>
+**30B/23/33** 
 ![Image](./sheep/sheep01.jpg)
 ![Image](./sheep/sheep02.jpg)
 ![Image](./sheep/sheep03.jpg)
@@ -260,6 +263,7 @@ https://www.youtube.com/watch?v=VMYidjgZA1M
 
 ### FA006 楊芷涵 23歲
 **160cm 42kg**
+<br>
 **74/59/86** 
 
 ![Image](./chihhan/1.jpeg)
