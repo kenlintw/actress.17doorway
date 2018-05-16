@@ -329,7 +329,7 @@ CHARINYEN AW17形象影片
 
 ### TG016 葉紓菡 14歲
 **162cm 46kg**
-
+<br>
 **鋼琴/揚琴**
 
 ![Image](./yeh/yeh01.jpg)
@@ -349,4 +349,21 @@ CHARINYEN AW17形象影片
 2017 大愛戲劇。
 2018 校園喜劇片-姐妹
 ```
+<br>
+<br>
 
+
+### TG017 汪采涵 14歲
+**150cm 30kg**
+![Image](./wan/wan01.jpg)
+![Image](./wan/wan02.jpg)
+![Image](./wan/wan03.jpg)
+
+**演藝經驗**
+```
+2016 遠道島嶼
+2016 島攤車
+```
+**影片連結**
+* [寶島攤車](https://m.youtube.com/watch?feature=youtu.be&v=is9sskRukeo)
+* [遠道島嶼](https://m.youtube.com/watch?v=SKwvX36WiUg)
