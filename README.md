@@ -212,7 +212,41 @@ https://www.youtube.com/watch?v=VMYidjgZA1M
 * [MV演出 星期天Sunday -【專屬司機】 Ft.陳零九Nine Chen](https://www.youtube.com/watch?v=RrMqChIqV04&t=1s)
 
 
+### FA005 尤鳳揚 22歲
+**153cm 43kg **
+* 30B/23/33 ** 
+![Image](./sheep/sheep01.jpg)
+![Image](./sheep/sheep02.jpg)
+![Image](./sheep/sheep03.jpg)
 
-
-
-
+**演藝經驗**
+```
+戲劇特約演員
+平面圖庫，外拍，旅拍，棚拍
+唱片合輯一張
+紙風車舞台劇演出
+節目錄影
+婚禮主持
+髮秀模特兒
+展場PG
+展場操偶師
+節目主持
+賣場活動主持
+加油美玲185集(秘書)
+甘味人生320集(護士)
+甘味人生362集(服務生)
+甘味人生395集(記者)
+幸福來了98集(酒女)
+家樂福廣告(女友)
+亞細生技短片(OL)
+星晴Online特使(玩家)
+國民年金廣告(孕婦)
+東元清淨機廣告(媽媽)
+實習醫師鬥格59集(女友)
+東元除濕機(女主)
+'''
+**影片連結**
+* [加油美玲185集-秘書](https://youtu.be/SpCFYzy4bCY)
+* [家樂福廣告 女友](https://youtu.be/IHCJfvWQXfQ)
+* [國民年金廣告 孕婦](https://youtu.be/w5SrKHY2WgU)
+* [東元除濕機 女主](https://youtu.be/6u9GAwPI3zs)
