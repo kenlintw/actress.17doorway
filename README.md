@@ -3,7 +3,8 @@
 
 ### TG011 蔡宛妮
 ```
-**163cm 48kg**
+**19歲**
+**身高/體重：163cm/48kg**
 ```
 ![Image](./shinny/shinny01.jpeg)
 ![Image](./shinny/shinny02.jpeg)
