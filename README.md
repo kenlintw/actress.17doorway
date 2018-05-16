@@ -104,6 +104,7 @@ Nissan廣告2018.4
 
 ### TG018 林旻靜 17歲
 **155cm 42kg**
+<br>
 ![Image](./ging/ging01.jpg)
 ![Image](./ging/ging02.jpg)
 
@@ -118,6 +119,7 @@ Nissan廣告2018.4
 
 ### TG019 陳芊宇 25歲
 **155cm 42kg**
+<br>
 ![Image](./effy/effy01.png)
 ![Image](./effy/effy02.png)
 ![Image](./effy/effy03.png)
@@ -150,6 +152,7 @@ Nissan廣告2018.4
 
 ### TG020 Tiny 21歲
 **153cm 40kg**
+<br>
 ![Image](./tiny/tiny01.png)
 ![Image](./tiny/tiny02.png)
 ![Image](./tiny/tiny03.png)
