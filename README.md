@@ -259,8 +259,8 @@ https://www.youtube.com/watch?v=VMYidjgZA1M
 <br>
 
 ### FA006 楊芷涵 23歲
-**160cm 42kg **
-** 74/59/86 ** 
+**160cm 42kg**
+**74/59/86** 
 ![Image](./chihhan/1.jpeg)
 ![Image](./chihhan/2.jpeg)
 ![Image](./chihhan/3.jpeg)
