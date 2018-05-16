@@ -208,8 +208,8 @@ https://www.youtube.com/watch?v=VMYidjgZA1M
 **影片連結**
 * [FHM男人幫4月號](https://www.facebook.com/Taiwan.FHM/videos/1824129564306699/)
 * [MV P!SCO-清澈的湖水裡有魚](https://www.youtube.com/watch?v=VMYidjgZA1M)
-* [MV演出]田亞霍-Elvis 【小醋瓶】My Little Darling](https://www.youtube.com/watch?v=VMYidjgZA1M)
-* [MV演出] 星期天Sunday -【專屬司機】 Ft.陳零九Nine Chen](https://www.youtube.com/watch?v=RrMqChIqV04&t=1s)
+* [MV演出 田亞霍-Elvis](https://www.youtube.com/watch?v=VMYidjgZA1M)
+* [MV演出 星期天Sunday -【專屬司機】 Ft.陳零九Nine Chen](https://www.youtube.com/watch?v=RrMqChIqV04&t=1s)
 
 
 
