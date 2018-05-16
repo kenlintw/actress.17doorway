@@ -362,7 +362,7 @@ CHARINYEN AW17形象影片
 **演藝經驗**
 ```
 2016 遠道島嶼
-2016 島攤車
+2016 寶島攤車
 ```
 **影片連結**
 * [寶島攤車](https://m.youtube.com/watch?feature=youtu.be&v=is9sskRukeo)
