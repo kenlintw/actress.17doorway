@@ -143,5 +143,76 @@ Nissan廣告2018.4
 2017.10月＿高雄水陸戲獅甲開場表演
 2016.12月＿DD&DF｢舞聖誕｣師生聯歡晚會
 ```
+<br>
+<br>
+
+### TG020 Tiny 21歲
+**153cm 40kg **
+![Image](./tiny/tiny01.png)
+![Image](./tiny/tiny02.png)
+![Image](./tiny/tiny03.png)
+
+
+**演藝經驗**
+```
+動態拍攝經歷：2016年至今
+[網路廣告 imos Note 7保護貼潔哥/李秉潔 與 Tiny。微小的妳，為了讓大家更清楚防水手機與保護貼防水的重要性，現身～游 ． 泳 ． 池～為大家親自示範：
+發佈日期：2016年8月23日
+https://www.facebook.com/MosCoat/videos/960351774069376/?fref=mentions
+
+[網路廣告]imos Qshock防摔殼
+發佈日期：2016年10月21日
+https://www.facebook.com/171860656206763/videos/1246994205360064/?fref=mentions
+
+[網路廣告]imos全版3D玻璃保護貼
+發佈日期：2016年10月31日
+https://www.facebook.com/MosCoat/videos/1031043927000160/?fref=mentions
+
+[網路廣告]imos 3D滿版強化玻璃保護貼 for iPhone 7 / 7 Plus
+發佈日期：2016年11月7日
+https://www.youtube.com/watch?v=n_8LUPeoumM
+
+[MV演出]田亞霍-Elvis 【小醋瓶】My Little Darling -
+發佈日期：2017年2月9日
+https://www.youtube.com/watch?v=Ondfo-pN1eg
+
+[形象短片] Tiny。微小的妳－《現在一切都好》
+發佈日期：2017年3月18日
+https://www.facebook.com/Tiny0219/videos/964412743693095/
+
+[網路廣告]HTC U11 可以胸部感壓 Edge Sense 測試!?!!! 流言終結者實測
+發佈日期：2017年5月28日
+https://www.youtube.com/watch?v=5wAh4nDRlTU&t=259s&has_verified=1
+
+[網路廣告]膜斯密碼Tiny 壞掉了怎麼辦？
+發佈日期：2017年7月16日
+https://www.youtube.com/watch?v=BzIB5HLEDdM
+
+[形象短片]JKF 10月號 JKF 福利攝の滅蚊對策
+發佈日期：2017年10月6日https://www.facebook.com/jkforum.net/videos/1711477172197727/
+
+[MV演出]阿娘喂! Oh My Mother! - 朱主爱 (四葉草) JOYCE CHU (OFFICIAL VIDEO)
+發佈日期：2017年11月13日
+https://www.youtube.com/watch?v=KssKIzNWJfI
+
+[MV演出] 星期天Sunday -【專屬司機】 Ft.陳零九Nine Chen
+發佈日期：2018年03月22日
+https://www.youtube.com/watch?v=RrMqChIqV04&t=1s
+
+[形象短片] FHM男人幫4月號  非善類寫真 發佈日期：2018年04月07日 https://www.facebook.com/Taiwan.FHM/videos/1824129564306699/
+
+[MV演出] P!SCO-清澈的湖水裡有魚
+發佈日期：2018年05月06日
+https://www.youtube.com/watch?v=VMYidjgZA1M
+```
+**影片連結**
+* [FHM男人幫4月號](https://www.facebook.com/Taiwan.FHM/videos/1824129564306699/)
+* [MV P!SCO-清澈的湖水裡有魚](https://www.youtube.com/watch?v=VMYidjgZA1M)
+* [MV演出]田亞霍-Elvis 【小醋瓶】My Little Darling](https://www.youtube.com/watch?v=VMYidjgZA1M)
+* [MV演出] 星期天Sunday -【專屬司機】 Ft.陳零九Nine Chen](https://www.youtube.com/watch?v=RrMqChIqV04&t=1s)
+
+
+
+
 
 
